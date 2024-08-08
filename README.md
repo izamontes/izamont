@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil ❤
 
 Meu nome é Izadora Montes
 
@@ -11,6 +11,9 @@ Meu nome é Izadora Montes
 morabitoannabeatriz@gmail.com
 
 @izaa_montess
+
+ ![](https://media1.tenor.com/m/v9XIZ3ZgKvEAAAAd/moon-earths-moon.gif)
+ 
 
 
 
